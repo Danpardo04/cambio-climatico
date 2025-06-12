@@ -18,4 +18,4 @@ segun la región , las recomendaciones seran segun un punto o sea que dira lo mi
 (ejemplo: pongamos el ejemplo pasado como base pues con eso talvez nos diga por ejemplo puedes aprovechar el día de calor para usar menos la luces y cosas asi)
 
 ¿QUE APORTA ESTO? 
-<Esta pagina web sevira para ayudar 
+<Esta pagina web sevira para ayudar en el cambio climatico
